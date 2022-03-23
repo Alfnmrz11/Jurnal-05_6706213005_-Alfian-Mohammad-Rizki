@@ -1,0 +1,1 @@
+# Jurnal-05_6706213005_-Alfian-Mohammad-Rizki
